@@ -22,4 +22,23 @@ Janaba :
 - Linguistiquement : le croyant est éloigné de ce qu'il est permis en état de pureté
 - Religieusement : état affectant la personne et l'empêchant de pratiquer ce pourquoi la purification est une condition (la prière, tawaf etc.)
 
-Quand on constate une trace d'émission sans avoir quand est-ce qu'elle a eu lieu, on considère que cela date du dernier sommeil. Du coup on refait les prières qu'on a accomplit depuis le dernier moment où on s'est endormi.
+#### Que faire et quand ?
+
+Quand on constate une trace d'émission sans avoir quand est-ce qu'elle a eu lieu, on considère que cela date du dernier sommeil. Du coup, on refait les prières qu'on a accompli depuis le dernier moment où on s'est endormi.
+
+| **Cas**                           | **Action**                         |
+|-----------------------------------|------------------------------------|
+| Rêve avec émission                | Cause réalisée → ghusl obligatoire |
+| Rêve sans émission                | Cause inexistante → pas de ghusl   |
+| Émission sans se souvenir du rêve | Cause réalisée → ghusl obligatoire |
+
+### Les actes obligatoires
+
+- L'intention de faire la grande ablution
+- L'enchaînement des actes de la grande ablution
+- Le frottement de la totalité du corps (le dalk)
+	- En cas de pénibilité, le caractère obligatoire des parties non atteignables est levé
+- Le lavage de la totalité du corps
+	- Le fait de faire parvenir l'eau à toute la surface externe du corps
+		- Non inclut l'intérieur de l'orifice de l'oreille, l'intérieur des yeux, l'intérieur du nez, de la bouche.
+		- Vérifier les zones difficiles d'accès, comme au niveau des plis, comme les aisselles, le nombril etc.
