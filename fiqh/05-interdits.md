@@ -1,6 +1,7 @@
 ## Interdits
 
 Le mensonge est strictement interdit. C'est informer __volontairement__ contrairement à la __réalité__. C'est un grand péché, car on peut recevoir la malédiction d'Allah. Autorisé exceptionnellement :
+
 - en temps de guerre
 - pour apaiser le couple exceptionnellement
 - pour sauver une vie
@@ -20,7 +21,7 @@ L'ostentation, c'est faire des actes de bien dans l'objectif d'être admiré par
 - Après : j'implore le pardon et l'acceptation
 - Conseil : préférer les actes discrets voir secrets
 
-La jalousie, c'est détester qu'Allah accorde une faveur à quelqu'un et souhaiter la disparition de celle-ci. La jalousie est une maladie qui détruit le jaloux. Si je ressens de la jalousie pour une frère, je fais dou3a pour lui pour compenser. Cela revient à faire une thérapie. Ce n'est pas de la jalousie si tu es content de la réussite de quelqu'un d'autre et souhaiter la même chose, c'est de l'envie. L'envie dans le bien est permise.
+La jalousie, c'est détester qu'Allah accorde une faveur à quelqu'un et souhaiter la disparition de celle-ci. La jalousie est une maladie qui détruit le jaloux. Si je ressens de la jalousie pour un frère, je fais des dou3a pour lui pour compenser. Cela revient à faire une thérapie. Ce n'est pas de la jalousie si tu es content de la réussite de quelqu'un d'autre et souhaite la même chose, c'est de l'envie. L'envie dans le bien est permise.
 
 > [...] C’est Nous qui avons réparti entre eux leur subsistance dans la vie présente et qui les avons élevés en grades les uns sur les autres, afin que les uns prennent les autres à leur service. [...] [Sourate 43 Az-Zuhruf verset 32]
 
@@ -46,7 +47,7 @@ La fornication est illicite, mais également tout ce qui mène jusqu'à la forni
 
 > La pudeur fait partie de la foi et la foi est au paradis. [...] [Rapporté par Tirmidhi dans ses Sounan n°2009]
 
-Manger le bien d'autrui, exemple : ne pas payer un ouvrier parce qu'il est sans papier.
+Manger le bien d'autrui, exemple : ne pas payer un ouvrier parce qu'il est sans papiers.
 
 Gagner des biens en utilisant l'intercession : le fait de monétiser son influence. Vendre l'acte d'intercéder. L'intercession pour le bien doit se faire gratuitement.
 

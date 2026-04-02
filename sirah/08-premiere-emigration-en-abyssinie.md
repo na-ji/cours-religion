@@ -36,7 +36,7 @@ Cinq dignitaires parmi les Quraychites exigèrent que le feuillet soit désavou�
 
 ## Les délégations de Najrâne p108
 
-Des chrétiens de Najrâne entendent parler du prophète ﷺ et vont aller à la Mecque afin découvrir les caractéristiques du prophète ﷺ. Ils vont se convertir immédiatement après avoir entendu le Coran. Abû Jahl va les traiter de sôt. Allah va alors révéler les 52-55 de la
+Des chrétiens de Najrâne entendent parler du prophète ﷺ et vont aller à la Mecque afin découvrir les caractéristiques du prophète ﷺ. Ils vont se convertir immédiatement après avoir entendu le Coran. Abû Jahl va les traiter de sôt. Allah va alors révéler les versets 52-55 de la Sourate 28 Al-Qasas.
 
 > Ceux à qui, avant lui [le Coran], Nous avons apporté le Livre, y croient. Et quand on le leur récite, ils disent : "Nous y croyons. Ceci est bien la vérité émanant de notre Seigneur. Déjà avant son arrivée, nous étions soumis." Voilà ceux qui recevront deux fois leur récompense pour leur endurance, pour avoir répondu au mal par le bien, et pour avoir dépensé de ce que Nous leur avons attribué; et quand ils entendent des futilités, ils s’en détournent et disent : "A nous nos actions, et à vous les vôtres. Paix sur vous. Nous ne recherchons pas les ignorants." [Sourate 28 Al-Qasas verset 52-55](https://quran.com/28/52-55)
 

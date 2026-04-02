@@ -26,8 +26,11 @@ Yâser et sa femme Soumaya et son fils 3Ammâr furent beaucoup torturés, jusqu'
 | Imâne      | Kufre    | Hypocrisie   |
 
 La contrainte extrême : vie en danger, danger de mort.
+
 => Alors on a le droit de prononcer une parole de Kufre sans y croire pour sauver sa vie
+
 => On n'a pas le droit
+
 	- d'accuser faussement quelqu'un
 	- de tuer un innocent
 	- de sauver sa vie pour tuer celle d'un autre
@@ -37,7 +40,7 @@ La contrainte relative : perte d'argent, prison etc. => Alors on n'a PAS le droi
 
 ### Persécutions d'Abu Bakr p91
 
-Abû Bakr, malgré sa noblesse, son statut et son noble comportement, fut également persécuté. Ibn Abi Eddaghna, chef d'une tribu arabe, lui accorda sa protection en raison de ses qualités morales. Les persécuteurs avaient peur de l'effet de la récitation du Coran sur le cœur des femmes et des enfants. Ils exigeaient que les gens exerçaient leur religion en toute discrétion chez eux. Ibn Abi Eddaghna lui ne pas pouvoir le protéger s'il continuait à exercer sa religion à voix haute. Abû Bakr va lui rendre sa protection, en disant que la protection d'Allah lui suffit.
+Abû Bakr, malgré sa noblesse, son statut et son noble comportement, fut également persécuté. Ibn Abi Eddaghna, chef d'une tribu arabe, lui accorda sa protection en raison de ses qualités morales. Les persécuteurs avaient peur de l'effet de la récitation du Coran sur le cœur des femmes et des enfants. Ils exigeaient que les gens exerçaient leur religion en toute discrétion chez eux. Ibn Abi Eddaghna l'informa ne pas pouvoir le protéger s'il continuait à exercer sa religion à voix haute. Abû Bakr va lui rendre sa protection, en disant que la protection d'Allah lui suffit.
 
 Moralité : la foi d'un musulman ne peut pas vivre sous condition. La protection d'Allah est la plus importante.
 
@@ -45,7 +48,7 @@ Moralité : la foi d'un musulman ne peut pas vivre sous condition. La protection
 
 En constatant que la persécution ne fait que renforcer la foi des musulmans, 3Utba Ibn Rabî3a tenta de négocier avec le prophète ﷺ. Il proposa au prophète argent, pouvoir, gloire ou de l'aider s'il est envoûté par un djinn, pour que le prophète ﷺ arrête de prêcher. Le prophète répondit en récitant le début de [sourate 41 Fussilat](https://quran.com/41/1-14). 3Utba sera touché, en étant convaincu qu'il s'agissait de la parole d'Allah. Il ne va pas se convertir par orgueil.
 
-Les Quraychites proposèrent alors partager leurs croyances et vice versa. Allah révéla alors [sourate Al-Kafirun](https://quran.com/109). Allah rejette complètement le syncrétisme (= rapprochement des religions). La foi islamique repose sur le tawhid pure, qui accepte ni partage ni alternance.
+Les Quraychites proposèrent alors de partager leurs croyances et vice versa. Allah révéla alors [sourate Al-Kafirun](https://quran.com/109). Allah rejette complètement le syncrétisme (= rapprochement des religions). La foi islamique repose sur le tawhid pure, qui accepte ni partage ni alternance.
 
 ### L'aveugle p96
 

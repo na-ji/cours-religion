@@ -3,6 +3,7 @@
 Makrouh = un acte dont l'abandon est récompensé et dont l'accomplissement n'est pas puni.
 
 Makrouh tanzihi = ce que la loi demande de délaisser sans obligation contraignante
+
 Makrouh tahrîmi = ce que la loi demande de délaisser avec obligation contraignante
 
 - Faire woudou dans des toilettes ou un lieu destiné à devenir des toilettes

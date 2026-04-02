@@ -1,33 +1,33 @@
 # Cours Sîra
 
-## Introduction à l'étude de la Sîrah prophétique
+## Introduction à l'étude de la Sîra prophétique
 
 Définition :
 
 - Sens linguistique : vient du verbe sâra/yassîrou qui signifie marcher/avancer/cheminer
-Dans la langue arabe, Sîrah désigne donc la manière d'être, la façon d'agir ou de se comporter d'une personne. Lorsque nous revenons au célèbre dictionnaire "lissân al 3arab" du lexicographe Ibn Mandhour, on retrouve comme définition :
+Dans la langue arabe, Sîra désigne donc la manière d'être, la façon d'agir ou de se comporter d'une personne. Lorsque nous revenons au célèbre dictionnaire "lissân al 3arab" du lexicographe Ibn Mandhour, on retrouve comme définition :
 
 La sîra : voie (tariqah), tradition (Sunna), manière, l'état dans lequel se trouve une personne ou une chose.
 
 > [Allah] dit : « Saisis-le et ne crains rien: Nous le ramènerons à son premier état. [20 Ta-Ha: 21]
 
-- Sens terminologique (religieux) : as Sîrah an nabaouia est la science qui étudie la vie, la mission, le comportement du prophète ﷺ afin de l'imiter et d'en tirer des enseignements
+- Sens terminologique (religieux) : as Sîra an nabaouia est la science qui étudie la vie, la mission, le comportement du prophète ﷺ afin de l'imiter et d'en tirer des enseignements
 
-## La Sîrah, bien plus qu'une biographie
+## La Sîra, bien plus qu'une biographie
 
-Quand on parle de Sîrah, beaucoup pensent spontanément qu'il s'agit simplement de la vie du prophète ﷺ, racontée de sa naissance à sa mort, avec les batailles, les événements, les compagnons, etc. Mais en réalité, la Sîrah est bien plus profonde que cela.
-La Sîrah, ce n'est pas seulement une suite d'événements historiques ou de faits chronologiques. C'est une école d'éducation, de réforme et de spiritualité.
-Nous pouvons affirmer que la Sîrah ne veut pas dire simplement la vie du prophète ﷺ ou sa biographie.
-L'aspect historique et biographie n'est qu'une facette de la Sîrah, utile, mais pas suffisante. Car derrière chaque événement se cache des principes spirituels, des sagesses éducative, des exemples de réforme morale et sociales.
-Quand on parle de Sîrah, on parle donc :
+Quand on parle de Sîra, beaucoup pensent spontanément qu'il s'agit simplement de la vie du prophète ﷺ, racontée de sa naissance à sa mort, avec les batailles, les événements, les compagnons, etc. Mais en réalité, la Sîra est bien plus profonde que cela.
+La Sîra, ce n'est pas seulement une suite d'événements historiques ou de faits chronologiques. C'est une école d'éducation, de réforme et de spiritualité.
+Nous pouvons affirmer que la Sîra ne veut pas dire simplement la vie du prophète ﷺ ou sa biographie.
+L'aspect historique et biographie n'est qu'une facette de la Sîra, utile, mais pas suffisante. Car derrière chaque événement se cache des principes spirituels, des sagesses éducative, des exemples de réforme morale et sociales.
+Quand on parle de Sîra, on parle donc :
 
 - d'exemplarité (qoudwah) : suivre le modèle parfait du prophète ﷺ
 - de réformes du cœur et de la société
 - de conformité entre le comportement du prophète ﷺ et les textes révélés
 
-C'est pourquoi qu'il est préférable d'utiliser le terme Sîrah tel quel plutôt que le traduire par biographie.
+C'est pourquoi qu'il est préférable d'utiliser le terme Sîra tel quel plutôt que le traduire par biographie.
 
-## Pourquoi étudier la Sîrah du prophète ﷺ ?
+## Pourquoi étudier la Sîra du prophète ﷺ ?
 
 Les deux missions du prophète ﷺ :
 
@@ -41,11 +41,11 @@ Les deux missions du prophète ﷺ :
 > [...] Prenez ce que le Messager vous donne ; et ce qu'il vous interdit, abstenez-vous-en; et craignez Allah, car Allah est dur en punition. [59 Al-Hachr: 7]
 
 Or, comment suivre celui dont on ignore la vie, les actes, les paroles et le comportement ? C'est impossible.
-Règle de Fiqh : tout ce qui me permet d'atteindre l'obligatoire, est obligatoire. Ce sans quoi un devoir ne peut être accompli que est lui-même un devoir.
+Règle de Fiqh : tout ce qui me permet d'atteindre l'obligatoire, est obligatoire. Ce sans quoi un devoir ne peut être accompli est lui-même un devoir.
 
 2 - Pour comprendre la religion à travers son exemple.
 
-## Cinq raisons majeures d'étudier la Sîrah
+## Cinq raisons majeures d'étudier la Sîra
 
 1. L'étude de la Sîra, un devoir religieux
 
@@ -69,7 +69,7 @@ Puisque suivre le prophète est un devoir, connaître sa vie est un devoir.
 
 Exemple numéro 1 :
 
-> [Sourate 33 verset 22]
+> Et quand les croyants virent les coalisés, ils dirent : "Voilà ce qu’Allah et Son Messager nous avaient promis; et Allah et Son messager disaient la vérité." Et cela ne fit que croître leur foi et leur soumission. [Sourate 33 Al-Ahzab verset 22](https://quran.com/33/22)
 
 La Sîra nous donne les détails que le verset ne mentionne pas : la date, le nom des tribus, les conditions du siège, le contexte, la durée, mais aussi la fermetée et la confiance des croyants.
 
@@ -157,7 +157,7 @@ Les clans de Saba, sont partis en exode suite à l'assèchement de leur barrage.
 
 ### La source de Zamzam a été redécouverte par Abd Al Muttalib, le grand-père du prophète ﷺ.
 
-Ibn Ishaq (un tâbi3 tâbi3ine, un des premiers à avoir écrit la Sîrah) : a dit qu'il tenait les informations de Zamzam de 3Ali (cousin du prophète ﷺ)
+Ibn Ishaq (un tâbi3 tâbi3ine, un des premiers à avoir écrit la Sîra) : a dit qu'il tenait les informations de Zamzam de 3Ali (cousin du prophète ﷺ)
 
 > L'eau de Zamzam réalise le souhait pour lequel elle a été bu. Si tu la bois pour guérir, Allah te guérira. Si tu la bois pour être rassasié, Allah te rassasiera. Si tu la bois pour ne plus avoir soif, Allah étanchera ta soif. Elle a jailli grâce au coup d'ail de Djibril et Allah en a abreuvé Isma3il [Hadith acceptable, selon Ibn 3Abbas]
 

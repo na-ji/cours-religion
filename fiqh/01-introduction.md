@@ -11,6 +11,7 @@ Fiqh = jurisprudence
 
 1 - Sur le plan linguistique :
 Terme fiqh dérivé du verbe faqiha/yafqahu/fiqhan qui a plusieurs significations
+
 - la compréhension de manière absolue, comme le montre la parole d'Allah
 
 > Ils dirent : « Ô Chuayb, nous ne comprenons pas grand-chose à ce que tu dis ; et vraiment, nous te considérons comme un faible parmi nous. Si ce n'est ton clan, nous t'aurions certainement lapidé. Et rien ne nous empêche de t'atteindre ». [11 Hud: 91]
@@ -18,12 +19,11 @@ Terme fiqh dérivé du verbe faqiha/yafqahu/fiqhan qui a plusieurs signification
 > Les sept cieux et la terre et ceux qui s'y trouvent, célèbrent Sa gloire. Et il n'existe rien qui ne célèbre Sa gloire et Ses louanges. Mais vous ne comprenez pas leur façon de Le glorifier. Certes, c'est Lui qui est Indulgent et Pardonneur. [17 Al-Isra: 44]
 
 - la compréhension fine et précise
-- la connaissance d'une chose, car toute personne qui possède la science d'une chose, est considéré comme un faqih
-Par la suite, ce terme a été spécifiquement employé pour désigner la science de la religion
+- la connaissance d'une chose, car toute personne qui possède la science d'une chose, est considéré comme un faqih. Par la suite, ce terme a été spécifiquement employé pour désigner la science de la religion
 
 2 - Sur le plan terminologique (religieux)
 
-C'est ce qu'on traduit par droit musulman (ou jurisprudence), c'est ce qui désigne la compréhension des prescriptions juridiques pratiques de la sha3irah, celles auxquelles le musulman doit se conformer dans sa vie quotidienne. Elles englobent :
+C'est ce qu'on traduit par droit musulman (ou jurisprudence), c'est ce qui désigne la compréhension des prescriptions juridiques pratiques de la shari3ah, celles auxquelles le musulman doit se conformer dans sa vie quotidienne. Elles englobent :
 
 - Les adorations (al 3ibâdât) ou culte : prière, aumone zakat, jeûne saoum, pélerinage hajj
 - Affaires sociales (mu3âmalât) : le commerce, le mariage, le divorce, les transactions, les contrats
