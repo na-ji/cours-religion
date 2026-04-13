@@ -47,3 +47,27 @@ Peu après sa sortie des ravins de La Mecque, trois ans avant l'émigration, Kha
 ## Le mariage avec Sawda p110
 
 Dans le mois suivant, le prophète ﷺ se maria avec Sawda, qui était veuve. Elle faisait partie des émigrés en Abyssinie. Il se maria avec elle pour la protéger et la préserver, car elle était veuve, seule et sans protection malgré son noble rang.
+
+## Le mariage avec 3Aicha p110
+
+- C'était un mariage noble et pur.
+- Choisi par Allah avec sagesse
+- S'inscrit dans un cadre religieux et éducatif profond
+
+Beaucoup de ces critiques viennent d'une erreur : appliquer les normes d'aujourd'hui à une époque complètement différente.
+
+Ibn Kathir disait au 8ᵉ siècle qu'il était courant de marier les filles quand elles sont jeunes.
+
+Le vrai problème aujourd'hui n'est pas le mariage, mais notre regard moderne.
+
+Cela n'a suscité aucune critique à cette époque.
+
+## La mort d'Abu Talib p111
+
+Abu Talib n'a pas traité le prophète ﷺ de menteur, mais il n'a jamais récité l'attestation de foi.
+
+Le prophète a tenté à plusieurs reprises de lui faire dire l'attestation de foi, il a hésité, mais les mushkrines l'ont convaincu de rester dans la religion de ses ancêtres.
+
+Allah a révélé par la suite:
+
+> Tu (Mohammed) ne guides pas celui que tu aimes, mais c’est Allah qui guide qui Il veut. Et Il connaît mieux cependant les bien-guidés. [Sourate 28 Al-Qasas verset 56]
