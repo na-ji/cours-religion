@@ -54,3 +54,5 @@ Réponse : oui
 6. L'enchaînement des actes du tayammum sans interruption
 7. Que le temps de la prière canonique soit commencé
 8. Le tayammum doit être suivi immédiatement de la prière pour laquelle il a été fait
+
+La terre est le meilleur élément naturel pour faire le tayammum.
