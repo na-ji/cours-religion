@@ -26,8 +26,6 @@ Conditions :
 - Craint que la guérison retard ou que la maladie s'aggrave.
 	- Il faut que ce soit fonder sur l'expérience habituelle ou sur l'avis d'un médecin compétent.
 
-Question : est-ce qu'on peut diriger la prière avec le tayammum
-
 Le résident en bonne santé n'a normalement aucune raison de faire tayammum. S'il n'a pas accès à l'eau de manière temporaire :
 
 | **Situation** | **Comportement**                    |
@@ -35,3 +33,12 @@ Le résident en bonne santé n'a normalement aucune raison de faire tayammum. S'
 | Il espère     | Il prie à la fin du temps           |
 | Il désespère  | Il prie au début du temps canonique |
 | Hésitation    | Au milieu du temps                  |
+Si une personne n'a pas beaucoup de temps avant la fin du temps canonique. Deux avis fort :
+- Le respect du temps canonique est prioritaire, donc la personne peut faire le tayammum.
+- Le tayammum est un substitut faible du wudu, il ne peut pas le remplacer quand c'est possible de faire.
+
+Le tayammum n'est pas autorisé pour les sédentaires lorsque :
+- Pour la prière du vendredi (avis principal)
+- Pour la prière mortuaire (sauf si personne n'a le wudu et pas possible d'attendre l'eau).
+
+Question : est-ce qu'on peut diriger la prière avec le tayammum
