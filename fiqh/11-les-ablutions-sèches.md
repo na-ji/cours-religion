@@ -28,4 +28,10 @@ Conditions :
 
 Question : est-ce qu'on peut diriger la prière avec le tayammum
 
-Le résident en bonne santé a normalement aucune raison de faire tayammum. 
+Le résident en bonne santé n'a normalement aucune raison de faire tayammum. S'il n'a pas accès à l'eau de manière temporaire :
+
+| **Situation** | **Comportement**                    |
+| ------------- | ----------------------------------- |
+| Il espère     | Il prie à la fin du temps           |
+| Il désespère  | Il prie au début du temps canonique |
+| Hésitation    | Au milieu du temps                  |
