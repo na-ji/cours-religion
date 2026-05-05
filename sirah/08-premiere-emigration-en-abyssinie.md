@@ -68,6 +68,12 @@ Abu Talib n'a pas traité le prophète ﷺ de menteur, mais il n'a jamais récit
 
 Le prophète a tenté à plusieurs reprises de lui faire dire l'attestation de foi, il a hésité, mais les mushkrines l'ont convaincu de rester dans la religion de ses ancêtres.
 
-Allah a révélé par la suite:
+Allah a révélé par la suite :
 
 > Tu (Mohammed) ne guides pas celui que tu aimes, mais c’est Allah qui guide qui Il veut. Et Il connaît mieux cependant les bien-guidés. [Sourate 28 Al-Qasas verset 56]
+
+## L'année de la tristesse p112
+
+Le prophète nomma cette année, l'année de la tristesse suite à ces deux décès.
+
+Les Quraychites se sont encore plus acharnés sur le prophète ﷺ.

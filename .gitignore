@@ -2,3 +2,5 @@
 .vscode
 *.html
 *.pdf
+.obsidian/workspace.json
+.obsidian/app.json

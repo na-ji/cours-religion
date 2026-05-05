@@ -70,3 +70,37 @@ Celui qui a oublié tout ou partie d'un membre :
 
 	- Il doit refaire toutes les prières depuis sa dernière grande ablution
 	- Il n'est pas permis de rentrer dans une mosquée, de réciter le Coran
+
+Le Ghusl non obligatoire ne remplace pas le wudu pour la prière, sauf si la personne formule l'intention de faire le wudu.
+
+### Explication de la manière d'accomplir le ghusl.
+
+#### La manière minimale suffisante
+
+- L'intention
+- Faire parvenir l'eau partout
+- Frotter
+- La continuité
+
+#### La manière complète
+
+1. Placer le récipient à notre droite
+2. Dire bismillah
+3. Laver ses mains trois fois
+4. Enlever les souillures sur les parties intimes, et le corps, s'il y en a
+5. Formuler l'intention
+  5.1. de lever l'état d'impureté majeur,
+  5.2. de rendre la prière permise
+  5.3. d'accomplir l'obligation du ghusl
+6. Laver ses parties intimes
+7. Faire le wudu, sans répéter le lavage des mains. Faire tous les membres, les pieds peuvent attendre la fin
+8. Mouiller ses mains et les passer dans les racines des cheveux de la tête, en commençant par l'arrière
+9. Verser trois poignées d'eau sur la tête puis la laver
+10. Rassembler les cheveux et les presser contre la tête
+11. Laver l'extérieur et l'intérieur des oreilles
+12. Laver ce qui est sous le menton, toute la nuque
+13. Laver les bras, puis sous les aisselles
+14. Verser de l'eau sur le côté droit du corps et laver extérieurement intérieurement jusqu'au genou
+15. Laver le côté gauche jusqu'au genou
+16. Laver la jambe droite du genou jusqu'au pied
+17. Laver la jambe gauche du genou jusqu'au pied
