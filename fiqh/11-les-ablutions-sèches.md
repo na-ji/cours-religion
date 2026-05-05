@@ -42,6 +42,7 @@ Le tayammum n'est pas autorisé pour les sédentaires lorsque :
 - Pour la prière mortuaire (sauf si personne n'a le wudu et pas possible d'attendre l'eau).
 
 Question : est-ce qu'on peut diriger la prière avec le tayammum
+Réponse : oui
 
 ## Les actes obligatoires
 
@@ -52,3 +53,4 @@ Question : est-ce qu'on peut diriger la prière avec le tayammum
 5. Poser les mains sur le sol pur une première fois
 6. L'enchaînement des actes du tayammum sans interruption
 7. Que le temps de la prière canonique soit commencé
+8. Le tayammum doit être suivi immédiatement de la prière pour laquelle il a été fait
