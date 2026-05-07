@@ -1,4 +1,4 @@
-## L'émigration à Al-Tâïf
+## L'émigration à Al-Tâïf p113
 
 Face à l'entêtement des Quraychites, le prophète ﷺ chercha refuge auprès des Thaqîf de Al-Tâïf. Ceux vont le rejeter et même le blesser en lui jetant des pierres.
 
@@ -21,7 +21,7 @@ Même face à la souffrance, le prophète ﷺ continuait d'avoir de la compassio
 
 [... histoire avec 3Addas et Younous]
 
-Sur le chemin du retour vers La Mecque, le prophète ﷺ receva la visite de Djinns de confession israélite. Après avoir écouté le Coran, ils vont se convertir à l'islam et vont transmettre le message à leur peuple.
+Sur le chemin du retour vers La Mecque, le prophète ﷺ a re la visite de Djinns de confession israélite. Après avoir écouté le Coran, ils vont se convertir à l'islam et vont transmettre le message à leur peuple.
 
 Allah révéla ces versets sur les Djinns en question :
 
@@ -33,3 +33,7 @@ Ce qu'on peut retenir :
 - Chercher de nouvelles opportunités face aux obstacles, avec persévérance
 - La prédication ne donne pas forcément des résultats immédiats
 - Garder espoir malgré les épreuves, rester optimiste
+
+## La demande de protection à Mut3am Ibn 3Adiyy p115
+
+Le prophète  ﷺ
