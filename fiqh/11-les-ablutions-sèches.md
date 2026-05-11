@@ -100,3 +100,5 @@ Celui qui délaisse les actes recommandés, il recommence la prière dans le tem
 - Toutes celles qui annulent le Wudu
 - Trouver de l'eau strictement avant d'accomplir la prière
 - Oublier que l'eau existait et se le rappeler pendant la prière
+
+Le tayammum n'est valable que pour une seule prière obligatoire
