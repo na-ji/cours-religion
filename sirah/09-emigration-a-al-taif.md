@@ -21,7 +21,7 @@ Même face à la souffrance, le prophète ﷺ continuait d'avoir de la compassio
 
 [... histoire avec 3Addas et Younous]
 
-Sur le chemin du retour vers La Mecque, le prophète ﷺ a re la visite de Djinns de confession israélite. Après avoir écouté le Coran, ils vont se convertir à l'islam et vont transmettre le message à leur peuple.
+Sur le chemin du retour vers La Mecque, le prophète ﷺ a reçu la visite de Djinns de confession israélite. Après avoir écouté le Coran, ils vont se convertir à l'islam et vont transmettre le message à leur peuple.
 
 Allah révéla ces versets sur les Djinns en question :
 
@@ -36,4 +36,19 @@ Ce qu'on peut retenir :
 
 ## La demande de protection à Mut3am Ibn 3Adiyy p115
 
-Le prophète  ﷺ
+Le prophète ﷺ suite à son voyage à At-Taif. Les Quraychites considèrent qu'il est un danger et refusent de le laisser entrer. Le prophète  ﷺ va demander la protection à Mut3am, un noble Quraychite. Par respect de l'honneur tribal, les Quraychites ont accepté cette protection et ont laisse rentré le prophète  ﷺ. 
+
+Leçons à retenir :
+- La vraie confiance en Allah est de fournir les causes. Le résultat vient d'Allah, seulement si les causes ont été faites.
+- Il est permis de demander l'aide de non-musulmans dans une affaire juste.
+- L'importance de la loyauté dans la parole donnée chez les arabes.
+
+## La délégation de Dûs p116
+
+Ettufaïl Ibn 3Amrû Ed-Dûsi, un noble du peuple de Dûs, rendit visite au prophète  ﷺ. Celui-ci va se convertir après avoir écouté le coran. Le prophète  ﷺ lui donna comme mission de retourner prêcher auprès de son peuple.
+Dans le peuple de Dûs, il y avait le célèbre compagnon Abû Hurayra, connu pour être celui ayant rapporté le plus de hadith.
+
+Leçons à retenir :
+- La force du coran, qui transforme les coeurs 
+- Lorsqu'une personne influente se convertie, cela peut avoir une influence énorme
+- Invoquer pour la guidée des gens, même quand ça peut paraître difficile, car rien n'est difficile pour Allah
