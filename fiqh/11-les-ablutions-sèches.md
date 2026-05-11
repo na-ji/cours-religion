@@ -74,3 +74,9 @@ Les métaux précieux, ou les pierres précieuses, ne sont pas autorisés, car i
 Le malade, et uniquement lui, a le droit d'utiliser un mur en pierre ou en argile cuite s'il n'a pas autre chose à portée.
 
 ## Les actes recommandés de l'ablution sèche p46
+
+- Poser les mains sur le sol une seconde fois après les avoir passées sur le visage
+- Passer les mains sur la partie comprise entre le poignet et le coude
+- Respecter l'ordre
+
+Celui qui délaisse les actes recommandés, il recommence la prière dans le temps.
