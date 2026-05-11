@@ -87,3 +87,15 @@ Celui qui délaisse les actes recommandés, il recommence la prière dans le tem
 - Commencer par la droite, 
 - Faire l'extérieur avant l'intérieur
 - L'avant avant l'arrière
+
+## Les actes détestables
+
+- Faire autre chose que sur la terre, alors que la terre est disponible
+- Essuyer plus d'une fois
+- Changer l'ordre
+- Faire tayammum avec la 3awra visible
+
+## Les causes qui invalident l'ablution sèche p48
+
+- Toutes celles qui annulent le Wudu
+- Trouver de l'eau avant d'accomplir la prière
