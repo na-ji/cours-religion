@@ -55,6 +55,13 @@ Réponse : oui
 7. Que le temps de la prière canonique soit commencé
 8. Le tayammum doit être suivi immédiatement de la prière pour laquelle il a été fait
 
-La terre est le meilleur élément naturel pour faire le tayammum. D'autres e
+La terre est le meilleur élément naturel pour faire le tayammum. D'autres éléments :
+- brique non cuite
+- pierre
+- neige
+- glace
+- la terre fangeuse
+
+Le tayammum est valable tous les éléments naturels, qui proviennent de la terre, et n'est pas transformé par l'homme. 
 
 ## Les actes recommandés de l'ablution sèche p46
