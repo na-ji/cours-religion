@@ -62,11 +62,13 @@ La terre est le meilleur élément naturel pour faire le tayammum. D'autres él�
 - glace
 - la terre fangeuse (boue) → s'il n'y a rien d'autre.
 
-Le tayammum est valable avec tout ce qui se trouve à la surface de la Terre, issue de sa nature, et restant dans son état originel sans avoir été transformé par une intervention humaine.
+Le tayammum est valable avec tout ce qui se trouve à la surface de la terre, issue de sa nature, et restant dans son état originel sans avoir été transformé par une intervention humaine.
 
 Tout ce qui provient de la terre, mais qui est transformé par l'homme, n'est pas permis pour le tayammum :
 - Le plâtre cuit
 - Le bois
 - L'herbe ou autre substance végétale
+
+Les métaux précieux, ou les pierres précieuses, ne sont pas autorisés, car ils vont à l'encontre de ce qui se trouve au-dessus de la terre et pure. 
 
 ## Les actes recommandés de l'ablution sèche p46
