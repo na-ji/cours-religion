@@ -60,8 +60,8 @@ La terre est le meilleur élément naturel pour faire le tayammum. D'autres él�
 - pierre
 - neige
 - glace
-- la terre fangeuse
+- la terre fangeuse (boue) → s'il n'y a rien d'autre.
 
-Le tayammum est valable tous les éléments naturels, qui proviennent de la terre, et n'est pas transformé par l'homme. 
+Le tayammum est valable avec tout ce qui se trouve à la surface de la Terre, issue de sa nature, et restant dans son état originel sans avoir été transformé par une intervention humaine
 
 ## Les actes recommandés de l'ablution sèche p46
