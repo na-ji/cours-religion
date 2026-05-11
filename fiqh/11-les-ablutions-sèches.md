@@ -80,3 +80,10 @@ Le malade, et uniquement lui, a le droit d'utiliser un mur en pierre ou en argil
 - Respecter l'ordre
 
 Celui qui délaisse les actes recommandés, il recommence la prière dans le temps.
+
+## Les actes méritoires du tayammum p46
+
+- Dire bismillah
+- Commencer par la droite, 
+- Faire l'extérieur avant l'intérieur
+- L'avant avant l'arrière
