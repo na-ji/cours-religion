@@ -71,4 +71,6 @@ Tout ce qui provient de la terre, mais qui est transformé par l'homme, n'est pa
 
 Les métaux précieux, ou les pierres précieuses, ne sont pas autorisés, car ils vont à l'encontre de ce qui se trouve au-dessus de la terre et pure. 
 
+Le malade, et uniquement lui, a le droit d'utiliser un mur en pierre ou en argile cuite s'il n'a pas autre chose à portée.
+
 ## Les actes recommandés de l'ablution sèche p46
