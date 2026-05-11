@@ -86,7 +86,7 @@ Celui qui délaisse les actes recommandés, il recommence la prière dans le tem
 - Dire bismillah
 - Commencer par la droite, 
 - Faire l'extérieur avant l'intérieur
-- L'avant avant l'arrière
+- L'avant précède l'arrière
 
 ## Les actes détestables
 
@@ -101,4 +101,5 @@ Celui qui délaisse les actes recommandés, il recommence la prière dans le tem
 - Trouver de l'eau strictement avant d'accomplir la prière
 - Oublier que l'eau existait et se le rappeler pendant la prière
 
-Le tayammum n'est valable que pour une seule prière obligatoire
+Le tayammum n'est valable que pour une seule prière obligatoire.
+Suite à une prière obligatoire, il est possible de faire une ou plusieurs prières surérogatoires, le tawaf, ou toucher un mushaf. À condition que l'intention était présente avant le tayammum, et que celui soit accompli tout de suite après la prière obligatoire.
