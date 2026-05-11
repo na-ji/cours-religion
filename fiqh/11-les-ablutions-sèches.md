@@ -44,7 +44,7 @@ Le tayammum n'est pas autorisé pour les sédentaires lorsque :
 Question : est-ce qu'on peut diriger la prière avec le tayammum
 Réponse : oui
 
-## Les actes obligatoires
+## Les actes obligatoires p44
 
 1. L'intention de faire le tayammum, de rendre permis ce que l'était d'impureté empêchait, car c'est une permission temporaire
 2. L'utilisation d'un sol pur = șa3id = tout ce qui se trouve à la surface de la Terre, issue de sa nature, et restant dans son état originel sans avoir été transformé par une intervention humaine
@@ -55,4 +55,6 @@ Réponse : oui
 7. Que le temps de la prière canonique soit commencé
 8. Le tayammum doit être suivi immédiatement de la prière pour laquelle il a été fait
 
-La terre est le meilleur élément naturel pour faire le tayammum.
+La terre est le meilleur élément naturel pour faire le tayammum. D'autres e
+
+## Les actes recommandés de l'ablution sèche p46
