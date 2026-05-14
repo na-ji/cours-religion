@@ -20,3 +20,8 @@ Les deux tribus arabes étaient continuellement en guerre. Ils se sont associés
 
 ## Les débuts de la conversion des Ansâr p124
 
+Six ansârs de Yathrib sont venus à la Mecque lors de la période du pèlerinage. Le prophète ﷺ va les appeler à l'Islam, et ils vont se convertir. Ceux-ci voulaient précéder les juifs qui les avaient menacer par la venu d'un prophète. Ils lui donnèrent rendez-vous au prochain pèlerinage.
+
+## Le premier serment d'El 3Aqaba
+
+10 ansa
