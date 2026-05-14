@@ -14,3 +14,7 @@ Yathrib avaient plusieurs tribus :
 - Banû Quraïdha (juifs)
 - Banû Ennadhîr (juifs)
 
+Les deux tribus arabes étaient continuellement en guerre. Ils se sont associés avec les juifs. Lors de la bataille de Bu3âth, plusieurs chefs de tribus arabes sont décédés. C'est pour cela que 3Aïcha disait 
+
+> Le jour de Bu3âth fut un jour offert par Allah à Son messager
+
