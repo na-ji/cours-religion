@@ -21,4 +21,4 @@ Allah a
 - Abu Bakr a une confiance absolue en le prophète, ce qui lui vaudra le surnom de As Sadiq, le véridique
 - Le fait que le prophète  ﷺ ait dirigé la prière devant les prophètes montre son importance
 - Al Aqsa est une mosquée très importante liée à la mosquée Al Haram
-- Le choix du récipient montre l'importance de suivre la voix d'Allah
+- Le choix du récipient entre le vin et le lait montre l'importance de suivre la voix d'Allah
