@@ -16,7 +16,7 @@ Selon les savants, le fait que la prière ait été révélé dans le ciel a une
 Allah a 
 ## Le retour à la Mecque p120
 
-- Le courage du prophète  ﷺ lorsqu'il annoncé ce voyage extraordinaire aux mécréants. 
+- Le courage du prophète  ﷺ lorsqu'il a annoncé ce voyage extraordinaire aux mécréants. 
 - Il  ﷺ va leur apporter plusieurs preuves, comme la description du temple de Jerusalem ou d'une caravane qu'il a vu sur le chemin. Ce qui était censé renforcer son récit n'a fait qu'augmenter l'orgueil des mécréants
 - Abu Bakr a une confiance absolue en le prophète, ce qui lui vaudra le surnom de As Sadiq, le véridique
 - Le fait que le prophète  ﷺ ait dirigé la prière devant les prophètes montre son importance
