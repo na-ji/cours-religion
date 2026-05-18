@@ -56,6 +56,9 @@ Istibrâ = opération qui cherche à faire en sorte qu'il ne reste plus rien dan
 	- Plaisir = inclinaison intérieure accompagnée d'un réveil
 	- Le contact est une cause indirecte des annulatifs des ablutions, le critère est le plaisir voulu ou ressenti
 
+Qasada = avoir l'intention
+Wajada = plaisir trouvé
+
 | **Intention** | **Plaisir** | **Résultat** |
 |---------------|-------------|--------------|
 | Non ❌         | Oui ✅       | annulé ❌     |
