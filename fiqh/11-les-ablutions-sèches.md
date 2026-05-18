@@ -1,4 +1,4 @@
-## Le tayammum ou l'ablution sèche p42
+ ## Le tayammum ou l'ablution sèche p42
 
 La tayammum est une exclusivité de cette communauté.
 
