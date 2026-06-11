@@ -24,9 +24,9 @@ Six ansârs de Yathrib sont venus à la Mecque lors de la période du pèlerinag
 
 ## Le premier serment d'El 3Aqaba p125
 
-10 ansârs revinrent la Mecque et embrassèrent l'islam. Ils firent le serment de ne pas commettre de péchés.
+10+2 ansârs revinrent la Mecque et embrassèrent l'islam. Ils firent le serment de ne pas commettre de péchés.
 Le prophète ﷺ envoya Mushab à Yathrib pour leur enseigner le Coran.
-Mushab va convaincre plusieurs polythéistes en leur récitant le Coran. Rapidement, l'islam s'est propagé dans toute la ville. 
+Mushab va convaincre plusieurs polythéistes en leur récitant le Coran. Rapidement, l'islam s'est propagé dans toute la ville de Yathrib.
 
 ## Le second serment d'El 3Aqaba p126
 
