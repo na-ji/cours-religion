@@ -10,9 +10,9 @@ Parmi les tribus qui venaient faire le pèlerinage, il y avait les arabes de Yat
 Yathrib avaient plusieurs tribus :
 - Aws (arabes)
 - Khazraj (arabes)
-- Banû Qaynuda3 (juifs)
+- Banû Qaynuqa3 (juifs)
 - Banû Quraïdha (juifs)
-- Banû Ennadhîr (juifs)
+- Banû Ennadîr (juifs)
 
 Les deux tribus arabes étaient continuellement en guerre. Ils se sont associés avec les juifs. Lors de la bataille de Bu3âth, plusieurs chefs de tribus arabes sont décédés. C'est pour cela que 3Aïcha disait 
 
