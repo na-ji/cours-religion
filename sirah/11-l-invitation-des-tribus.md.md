@@ -28,6 +28,14 @@ Six ansârs de Yathrib sont venus à la Mecque lors de la période du pèlerinag
 Le prophète ﷺ envoya Mus3ab à Yathrib pour leur enseigner le Coran.
 Mus3ab va convaincre plusieurs polythéistes en leur récitant le Coran. Rapidement, l'islam s'est propagé dans toute la ville de Yathrib.
 
+Pourquoi les premiers grands résultats sont venus de Yathrib et non pas de la Mecque ?
+Allah a voulu que l'islam 
+- ne soit pas le résultat d'un projet politique
+- ne vienne pas d'un héritage
+- ne vienne pas d'un peuple réputé pour sa science
+
+Pour que l'on comprenne que ce qui a attiré les gens n'était pas le lien tribal, mais en raison de la vérité du message. 
+
 ## Le second serment d'El 3Aqaba p126
 
 73 hommes et 2 femmes vont rencontrer le prophète ﷺ et son oncle Al Abbas dans le secret de la nuit à El 3Aqaba. Les Ansars vont prêter allégeance au prophète ﷺ, reconnaitre l'unicité, et le protéger. 
