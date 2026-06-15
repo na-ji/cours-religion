@@ -14,7 +14,7 @@ Les femmes peuvent être divisées en trois catégories :
 Il n'y a pas de durée minimale reconnue par les malikites. La limite minimale en quantité est une goutte.
 La durée minimale de pureté entre deux menstrues est de 15 jours. Pour considérer qu'un cycle ne soit pas le même que le précédent.
 
-| Catégorie | Durée max                                     |
-| --------- | --------------------------------------------- |
-| mubtadi'a | 15 jours : au-delà, c'est une métrorragie     |
-| mu3tâda   | Prendre un compte la durée du cycle précédent |
+| Catégorie | Durée max                                                                                                                          |
+| --------- | ---------------------------------------------------------------------------------------------------------------------------------- |
+| mubtadi'a | 15 jours : au-delà, c'est une métrorragie                                                                                          |
+| mu3tâda   | Prendre un compte la durée du cycle précédent. Si ça continue, elle ajoute 3 jours d'observation (istidẖâr) sans dépasser 15 jours |
