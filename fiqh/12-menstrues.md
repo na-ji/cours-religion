@@ -13,7 +13,7 @@ Les femmes peuvent être divisées en trois catégories :
 
 Il n'y a pas de durée minimale reconnue par les malikites. La limite minimale en quantité est une goutte.
 
-| Catégorie | Durée max                                 |
-| --------- | ----------------------------------------- |
-| mubtadi'a | 15 jours : au-delà, c'est une métrorragie |
-| mu3tâda   |                                           |
+| Catégorie | Durée max                                     |
+| --------- | --------------------------------------------- |
+| mubtadi'a | 15 jours : au-delà, c'est une métrorragie     |
+| mu3tâda   | Prendre un compte la durée du cycle précédent |
