@@ -4,6 +4,6 @@ Menstrues = hayd
 Lochies = an nifâs
 
 Les femmes peuvent être divisées en trois catégories :
-1. Premier menstrue : mubtadi3a
+1. Premier menstrue : mubtadi'a
 2. Menstrues connues : mu3tâda
 3. Enceintes : hâmil
