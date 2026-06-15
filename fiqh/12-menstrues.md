@@ -11,7 +11,7 @@ Les femmes peuvent être divisées en trois catégories :
 
 ## Durée maximale des menstrues
 
-Il n'y pas de durée minimale reconnue par les malikites. La limite minimale en quantité est une goutte.
+Il n'y a pas de durée minimale reconnue par les malikites. La limite minimale en quantité est une goutte.
 
 | Catégorie | Durée max                                 |
 | --------- | ----------------------------------------- |
