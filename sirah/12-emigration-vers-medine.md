@@ -6,5 +6,9 @@ La préparation de l'émigration est le résultat une longue planification.
 
 Le prophète ﷺ s'est assuré de l'existence d'une bonne base de croyants à Médine.
 
-Après le second serment:
-- le coeur du prophète ﷺ fut rassuré car Allah lui avait accordé une protection capable de combatre, avec des moyens et 
+Après le second serment :
+- le cœur du prophète ﷺ fut rassuré, car Allah lui avait accordé une protection capable de combattre, avec des moyens et courageux
+- les polythéistes redoublèrent leur pression
+- les compagnons demandèrent alors l'autorisation d'émigrer, le prophète ﷺ leur répondu "on m'a indiqué du lieu de votre d'émigration, c'est Yathrib"
+- les compagnons se coordonnent, s'organisent et partent discrètement
+- les Ansars vont les héberger, les protéger et même partager leurs biens
