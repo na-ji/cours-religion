@@ -18,3 +18,6 @@ Les compagnons du prophète ﷺ ont connu 2 grandes épreuves à la Mecque :
 2. Contraint de quitter leur terre natale, leurs maisons, leurs biens, leurs richesses, leurs familles
 
 Ils partent sans hésiter, car préserver leur religion avait plus de valeur que tout le reste.
+
+Deux enseignements :
+- L'obligation d'émigrer d'une terre où le musulman ne peut pas pratiquer sa religion
