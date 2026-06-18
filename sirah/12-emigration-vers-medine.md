@@ -29,3 +29,4 @@ Les Quraychites se sont retrouvé à Dâr En-Nadwa et ont décidé d'attaquer le
 ## L'émigration du prophète p132
 
 Djibril va informer le prophète de ne pas dormir dans son lit cette nuit-là. 3Ali va rester dans son lit. Cela va tromper le groupe de Quraychites venu pour le tuer. 
+Il parta durant la nuit, en laissant 3Ali derrière lui pour qu'il restitue les dépôts. 
