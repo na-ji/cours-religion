@@ -12,3 +12,6 @@ Après le second serment :
 - les compagnons demandèrent alors l'autorisation d'émigrer, le prophète ﷺ leur répondu "on m'a indiqué du lieu de votre d'émigration, c'est Yathrib"
 - les compagnons se coordonnent, s'organisent et partent discrètement
 - les Ansars vont les héberger, les protéger et même partager leurs biens
+
+Les compagnons du prophète ﷺ ont connue 2 grandes épreuves à la Mecque :
+1. 
