@@ -15,4 +15,6 @@ Après le second serment :
 
 Les compagnons du prophète ﷺ ont connu 2 grandes épreuves à la Mecque :
 1. Persécutions
-2. Contraint de quitter leur terre natale, leurs maisons, leurs familles
+2. Contraint de quitter leur terre natale, leurs maisons, leurs biens, leurs richesses, leurs familles
+
+Ils partent sans hésiter, car préserver leur religion avait plus de valeur que tout le reste.
