@@ -13,5 +13,6 @@ Après le second serment :
 - les compagnons se coordonnent, s'organisent et partent discrètement
 - les Ansars vont les héberger, les protéger et même partager leurs biens
 
-Les compagnons du prophète ﷺ ont connue 2 grandes épreuves à la Mecque :
-1. 
+Les compagnons du prophète ﷺ ont connu 2 grandes épreuves à la Mecque :
+1. Persécutions
+2. Contraint de quitter leur terre natale, leurs maisons, leurs familles
