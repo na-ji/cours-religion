@@ -19,5 +19,9 @@ Les compagnons du prophète ﷺ ont connu 2 grandes épreuves à la Mecque :
 
 Ils partent sans hésiter, car préserver leur religion avait plus de valeur que tout le reste.
 
-Deux enseignements :
+Enseignements :
 - L'obligation d'émigrer d'une terre où le musulman ne peut pas pratiquer sa religion
+
+## Dâr En-Nadwa (le conseil de délibération)
+
+Les Quraychites ont décidé d'attaquer le prophète ﷺ avant son départ, mais Allah en décida autrement
