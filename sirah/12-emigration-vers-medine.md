@@ -22,6 +22,9 @@ Ils partent sans hésiter, car préserver leur religion avait plus de valeur que
 Enseignements :
 - L'obligation d'émigrer d'une terre où le musulman ne peut pas pratiquer sa religion
 
-## Dâr En-Nadwa (le conseil de délibération)
+## Dâr En-Nadwa (le conseil de délibération) p 130
 
-Les Quraychites ont décidé d'attaquer le prophète ﷺ avant son départ, mais Allah en décida autrement
+Les Quraychites se sont retrouvé à Dâr En-Nadwa et ont décidé d'attaquer le prophète ﷺ avant son départ. L'objectif est de réunir un jeune homme dans chaque tribu, et de les faire attaquer le prophète ﷺ tous en même temps. Pour éviter que le clan du prophète ﷺ déclare la guerre à tous les autres clans.
+
+## L'émigration du prophète p132
+
