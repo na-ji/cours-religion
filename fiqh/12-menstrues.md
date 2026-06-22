@@ -32,3 +32,4 @@ Définition : le nifâs (les lochies) est le sang qui sort à la suite ou en mê
 
 Si la femme devient pure après son nifâs et que cet état de pureté dure 15 jours complet ou d'avantage, puis qu'elle voit de nouveau du sang, alors ce sang est considéré comme un nouveau sang de règles. 
 En revanche, si elle devient pure après le nifâs, puis que le sang réapparaît avant l'écoulement de 15 jours complet de pureté, ce sang est considéré comme faisant encore partie du nifâs. 
+
