@@ -1,3 +1,5 @@
+p52
+
 Menstrues = ẖayd
 - Linguistiquement : l'écoulement
 - Techniquement : le sang qui s'écoule naturellement par les voix génitales de la femme susceptible d'avoir ses règles selon l'usage habituel
