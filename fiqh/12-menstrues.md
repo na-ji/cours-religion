@@ -23,3 +23,9 @@ La durée minimale de pureté entre deux menstrues est de 15 jours. Pour consid�
 | ẖâmil     | 15 jours max après le 3ème mois et 20 jours après le 6ème mois                                                                                                     |
 
 Le jugement du sang qui s'interrompt puis revient. 
+
+## Les lochies p56
+
+Elles ont le même statue que les règles dans les interdits. Durée maximale 60 jours
+
+Définition : le nifâs est le sang qui sort à la suite ou en même temps que l'accouchement selon l'avis de 
