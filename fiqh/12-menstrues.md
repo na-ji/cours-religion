@@ -21,3 +21,5 @@ La durée minimale de pureté entre deux menstrues est de 15 jours. Pour consid�
 | mubtadi'a | 15 jours : au-delà, c'est une métrorragie                                                                                                                          |
 | mu3tâda   | Prendre un compte la durée du cycle précédent. Si ça continue, elle ajoute 3 jours d'observation (istidẖâr) sans dépasser 15 jours. Au-delà, c'est une métrorragie |
 | ẖâmil     | 15 jours max après le 3ème mois et 20 jours après le 6ème mois                                                                                                     |
+
+Le jugement du sang qui s'interrompt puis revient. 
