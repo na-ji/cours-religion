@@ -32,3 +32,13 @@ Djibril va informer le prophète de ne pas dormir dans son lit cette nuit-là. 3
 Il parta durant la nuit, en laissant 3Ali derrière lui pour qu'il restitue les dépôts. 
 La Hijra a été préparée longtemps à l'avance. Chaque membre de la famille d'Abu Bakr avait une mission précise. Ils ont mis en œuvre toutes les causes possibles. 
 Le prophète ﷺ et Abu Bakr vont commencer par se cacher dans la grotte de Thawr pendant trois jours, au sud de Mekkah, à l'opposée de Yathrib.
+Des Quraychites vont arriver devant la grotte à un moment, mais ils ne vont pas les voir. Abu Bakr a dit :
+> S'ils avaient regardé au niveau de leur pied, ils nous auraient vu
+
+Cette éventualité va attrister Abu Bakr. Il fut rassuré par le prophète ﷺ. Allah mentionne ce passage dans le Coran :
+
+> Si vous ne lui portez pas secours... Allah l’a déjà secouru, lorsque ceux qui avaient mécru l’avaient banni, deuxième de deux. Quand ils étaient dans la grotte et qu’il disait à son compagnon : “Ne t’afflige pas, car Allah est avec nous.” Allah fit alors descendre sur lui Sa sérénité (As-Sakînah) et le soutint de soldats (Anges) que vous ne voyiez pas, et Il abaissa ainsi la parole des mécréants, tandis que la parole d’Allah eut le dessus. Et Allah est Puissant et Sage. [Sourate 9 At-Tawbah verset 40](https://quran.com/at-tawbah/40)
+
+Ils vont quitter la grotte après trois jours, et se mettent en route de Yathrib en longeant le littoral.
+
+Surâqa, un Quraychite polythéiste, va retrouver leur piste. Il va les poursuivre à cheval. Son cheval va trébucher
