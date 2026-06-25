@@ -41,4 +41,6 @@ Cette éventualité va attrister Abu Bakr. Il fut rassuré par le prophète ﷺ.
 
 Ils vont quitter la grotte après trois jours, et se mettent en route de Yathrib en longeant le littoral.
 
-Surâqa, un Quraychite polythéiste, va retrouver leur piste. Il va les poursuivre à cheval. Son cheval va trébucher
+Surâqa, un Quraychite polythéiste, va retrouver leur piste. Il va les poursuivre à cheval. Son cheval va trébucher. Et une poussière descendue du ciel va tomber sur lui. Il va alors comprendre que le prophète ﷺ avait une protection divine. Il va alors demander l'immunité, que le prophète ﷺ va lui accorder. Il va alors rentrer à Mekkah et faire en sorte que les Quraychites ne les poursuivent pas.
+
+## La descente à Qubâ p135
