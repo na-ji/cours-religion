@@ -47,6 +47,7 @@ L'hégire a eu lieu durant le mois de Rabi3 Al Awwal, le 12 selon Al Mas3udi.
 Les musulmans ont choisi que le calendrier de l'hégire commence par le mois de Muharram.
 
 La religion est le bien le plus précieux que le croyant possède.
+Le sacrifice immédiat permet d'obtenir une victoire durable. 
 
 ## La descente à Qubâ p135
 
