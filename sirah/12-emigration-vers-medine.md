@@ -30,3 +30,4 @@ Les Quraychites se sont retrouvé à Dâr En-Nadwa et ont décidé d'attaquer le
 
 Djibril va informer le prophète de ne pas dormir dans son lit cette nuit-là. 3Ali va rester dans son lit. Cela va tromper le groupe de Quraychites venu pour le tuer. 
 Il parta durant la nuit, en laissant 3Ali derrière lui pour qu'il restitue les dépôts. 
+La Hijra a été préparée longtemps à l'avance. Chaque membre de la famille d'Abu Bakr avait une mission précise. Ils ont mis en œuvre toutes les causes possibles. 
