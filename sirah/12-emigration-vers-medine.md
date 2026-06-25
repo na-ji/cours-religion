@@ -47,3 +47,5 @@ L'hégire a eu lieu durant le mois de Rabi3 Al Awwal, le 12 selon Al Mas3udi.
 Les musulmans ont choisi que le calendrier de l'hégire commence par le mois de Muharram.
 
 ## La descente à Qubâ p135
+
+Le premier endroit où le prophète ﷺ va séjourner est à Quba. Il va y fonder la première mosquée de l'histoire.
