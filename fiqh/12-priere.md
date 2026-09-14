@@ -9,3 +9,6 @@ Le temps où commence une prière et quand se termine celle-ci constitue une cau
 | Maghrib |                                                    |                                                    |                                  |
 | Ishâ    | Disparition de la lueur crépusculaire du soir      | Premier tiers de la nuit                           | Lever de l'aube                  |
 | Şubh    | L'aurore se lève                                   |                                                    | Lever du soleil                  |
+
+> Quand vous avez accompli la prière (As-Salât), invoquez le nom d’Allah, debout, assis ou couchés sur vos côtés. Puis lorsque vous êtes en sécurité, accomplissez laprière (As-Salât) [normalement], car la prière (As-Salât) demeure, pour les croyants, une prescription, à des temps déterminés. [Sourate 4 An-Nissa Verset 103](https://quran.com/an-nisa/103)
+
