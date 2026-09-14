@@ -17,6 +17,5 @@ Le temps d'accomplissement se divise :
 | Maghrib | Le moment où le soleil se couche                   |                                                    | Lever de l'aube                  |
 | Ishâ    | Disparition de la lueur crépusculaire du soir      | Premier tiers de la nuit                           | Lever de l'aube                  |
 | Şubh    | L'aurore se lève                                   |                                                    | Lever du soleil                  |
-|         |                                                    |                                                    |                                  |
 
 \* première prière légiféré 
