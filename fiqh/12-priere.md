@@ -14,7 +14,7 @@ Le temps d'accomplissement se divise :
 | ------- | -------------------------------------------------- | -------------------------------------------------- | -------------------------------- |
 | Dhur \* | Le soleil décline du milieu du ciel                | L'ombre de chaque objet devienne égale à cet objet | Le moment où le soleil se couche |
 | 'Asr    | L'ombre de chaque objet devienne égale à cet objet | La lumière du soleil pâlit                         | Le moment où le soleil se couche |
-| Maghrib | Le moment où le soleil se couche                   |                                                    | Lever de l'aube                  |
+| Maghrib | Le moment où le soleil se couche                   | Le temps de faire les ablutions et faire la prière | Lever de l'aube                  |
 | Ishâ    | Disparition de la lueur crépusculaire du soir      | Premier tiers de la nuit                           | Lever de l'aube                  |
 | Şubh    | L'aurore se lève                                   |                                                    | Lever du soleil                  |
 
