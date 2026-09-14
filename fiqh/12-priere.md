@@ -15,5 +15,5 @@ Le temps où commence une prière et quand se termine celle-ci constitue une cau
 Le wakt est un temps auquel on a fixé des limites : un commencement et une fin. Dans la terminologie juridique, al wakt est la période déterminée par la shari3ah pour l'accomplissement d'une adoration. 
 La prière a deux temps : accomplissement (Adâ) et rattrapage (Qaďâ). Le rattrapage n'est pas seulement rattrapé la prière.
 Le temps d'accomplissement se divise :
-- Temps préférentiel (mukhtâr) : 
-- Temps forcé (ďarûrî) :
+- Temps préférentiel (mukhtâr) : le temps durant lequel la personne qui n'a pas d'excuse peut normalement accomplir la prière.
+- Temps forcé (ďarûrî) : période qui reste juridiquement rattachée au temps de la prière, mais qui concerne ceux qui disposent d'une excuse reconnue permettant de parvenir jusqu'à ce temps.
