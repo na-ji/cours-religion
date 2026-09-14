@@ -4,7 +4,6 @@ Le temps où commence une prière et quand se termine celle-ci constitue une cau
 
 | Prière  | Temps préférentiel (mukhtâr)                       |                                                    | Temps forcé (ďarûrî)             |
 | ------- | -------------------------------------------------- | -------------------------------------------------- | -------------------------------- |
-|         |                                                    |                                                    |                                  |
 | Dhur    | Le soleil décline du milieu du ciel                | L'ombre de chaque objet devienne égale à cet objet | Le moment où le soleil se couche |
 | 'Asr    | L'ombre de chaque objet devienne égale à cet objet | La lumière du soleil pâlit                         | Le moment où le soleil se couche |
 | Maghrib |                                                    |                                                    |                                  |
