@@ -19,3 +19,4 @@ Le temps d'accomplissement se divise :
 | Şubh    | L'aurore se lève                                   |                                                    | Lever du soleil                  |
 
 \* première prière légiféré 
+
