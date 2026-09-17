@@ -1,5 +1,5 @@
 adorations -> conditions -> validation
-					-> d'accepta
+					-> d'acceptation
 
 Les conditions de validation des adorations
 - L'intention
