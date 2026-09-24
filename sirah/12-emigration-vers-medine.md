@@ -57,3 +57,7 @@ Le premier endroit où le prophète ﷺ va séjourner est à Quba. Il va y fonde
 
 Tous les prophètes ont connu une certaine opposition, et ont été accusés de mensonge par leur peuple respectif. Tous ont fait une immigration. Partout où un croyant se sent menacer pour sa religion ou s'il sent que sa croyance est menacée, alors il doit migrer pour protéger sa religion.
 Le prophète a quitté Makkah pour protéger le message et la religion.
+
+Pourquoi Omar Ibn Khattab a immigré ouvertement, mais pas le prophète ﷺ ?
+- Le prophète ﷺ est un modèle juridique, qui inspire tous les musulmans. Il a procédé ainsi pour protéger les musulmans qui veulent immigrer également
+- Le prophète ﷺ n'avait pas encore reçu l'ordre
