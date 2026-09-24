@@ -61,3 +61,8 @@ Le prophète a quitté Makkah pour protéger le message et la religion.
 Pourquoi Omar Ibn Khattab a immigré ouvertement, mais pas le prophète ﷺ ?
 - Le prophète ﷺ est un modèle juridique, qui inspire tous les musulmans. Il a procédé ainsi pour protéger les musulmans qui veulent immigrer également
 - Le prophète ﷺ n'avait pas encore reçu l'ordre
+
+
+## La fraternité en islam p141
+
+Les muhajir
