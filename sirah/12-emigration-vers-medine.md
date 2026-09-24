@@ -56,3 +56,4 @@ Le premier endroit où le prophète ﷺ va séjourner est à Quba. Il va y fonde
 ## L'émigration des prophètes p136
 
 Tous les prophètes ont connu une certaine opposition, et ont été accusés de mensonge par leur peuple respectif. Tous ont fait une immigration. Partout où un croyant se sent menacer pour sa religion ou s'il sent que sa croyance est menacée, alors il doit migrer pour protéger sa religion.
+Le prophète a quitté Makkah pour protéger le message et la religion.
