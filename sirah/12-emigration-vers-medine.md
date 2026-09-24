@@ -52,3 +52,7 @@ Le sacrifice immédiat permet d'obtenir une victoire durable.
 ## La descente à Qubâ p135
 
 Le premier endroit où le prophète ﷺ va séjourner est à Quba. Il va y fonder la première mosquée de l'histoire.
+
+## L'émigration des prophètes p136
+
+Tous les prophètes ont connu une certaine opposition, et ont été accusés de mensonge par leur peuple respectif. 
