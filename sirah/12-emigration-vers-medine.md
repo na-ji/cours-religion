@@ -65,4 +65,4 @@ Pourquoi Omar Ibn Khattab a immigré ouvertement, mais pas le prophète ﷺ ?
 
 ## La fraternité en islam p141
 
-Les muhajir
+Les muhâjirîne ont tout perdu lorsqu'ils sont arrivés à Médine. 
