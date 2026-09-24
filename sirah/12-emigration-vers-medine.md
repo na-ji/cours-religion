@@ -65,4 +65,4 @@ Pourquoi Omar Ibn Khattab a immigré ouvertement, mais pas le prophète ﷺ ?
 
 ## La fraternité en islam p141
 
-Les muhâjirîne ont tout perdu lorsqu'ils sont arrivés à Médine. 
+Les muhâjirîne ont tout perdu lorsqu'ils sont arrivés à Médine. Les ansârs vont se disputer l'honneur d'accueillir les muhâjirîne, au point où il a fallu faire un tirage au sort pour les départager. 
