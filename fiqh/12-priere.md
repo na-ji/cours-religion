@@ -29,3 +29,5 @@ Règles :
 	- Comme le prophète ﷺ l'a fait ainsi que les califes bien guidés
 	- La manière la plus sûre d'accomplir l'obligation
 - Celui qui a oublié la prière et que le temps ďarûrî est passé, alors il n'a pas commis de péché
+- Si une personne meurt au cours du temps de la prière sans avoir accompli la prière, alors il n'a pas raté la prière sauf s'il savait qu'il allait mourir
+- 
