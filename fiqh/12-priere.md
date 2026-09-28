@@ -1,4 +1,3 @@
-![[Temps des Prières - La journée en une seule Frise_V3.pdf]]
 ## Les temps des prières canoniques
 Le temps où commence une prière et quand se termine celle-ci constitue une cause (sabab) de l'obligation.
 
@@ -21,8 +20,7 @@ Le temps d'accomplissement se divise :
 \* première prière légiféré 
 
 
-![[Pasted image 20260928191830.png]]
-
+![[Temps des Prières - La journée en une seule Frise_V3.pdf]]
 
 Règles :
 - Lorsqu'il reste que le temps de 4 rak3at, le temps appartient à la dernière prière. Exemple : 5 minutes avant Maghrib, on fait 'Asr en priorité, puis Maghrib et enfin, on rattrape Dhur. 
