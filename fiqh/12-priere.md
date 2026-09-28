@@ -33,4 +33,5 @@ Règles :
 - On ne doit pas faire de prière surérogatoire :
 	- De Şubh jusqu'à l'apparition du soleil : déconseillé
 	- De l'apparition du soleil jusqu'à que le soleil soit levé : haram
-	- Du soleil levé jusqu'au shur
+	- Du soleil levé jusqu'au shuruk : déconseillé 
+	- Après autorisé
