@@ -24,5 +24,5 @@ Le temps d'accomplissement se divise :
 ![[Pasted image 20260928191830.png]]
 
 
-Règle:
-- Lorsqu'il reste que le temps de 4 r
+Règle :
+- Lorsqu'il reste que le temps de 4 rak3at, le temps appartient à la dernière prière. Exemple : 5 minutes avant Maghrib, on fait 3asr en priorité, puis Maghrib et enfin on rattrape Dohr.  
