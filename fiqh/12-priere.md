@@ -23,3 +23,6 @@ Le temps d'accomplissement se divise :
 
 ![[Pasted image 20260928191830.png]]
 
+
+Règle:
+- Lorsqu'il reste que le temps de 4 r
