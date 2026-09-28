@@ -1,4 +1,4 @@
-
+![[Temps des Prières - La journée en une seule Frise_V3.pdf]]
 ## Les temps des prières canoniques
 Le temps où commence une prière et quand se termine celle-ci constitue une cause (sabab) de l'obligation.
 
