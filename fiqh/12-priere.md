@@ -25,7 +25,7 @@ Le temps d'accomplissement se divise :
 
 
 Règles :
-- Lorsqu'il reste que le temps de 4 rak3at, le temps appartient à la dernière prière. Exemple : 5 minutes avant Maghrib, on fait 3asr en priorité, puis Maghrib et enfin on rattrape Dohr. 
+- Lorsqu'il reste que le temps de 4 rak3at, le temps appartient à la dernière prière. Exemple : 5 minutes avant Maghrib, on fait 'Asr en priorité, puis Maghrib et enfin, on rattrape Dhur. 
 - Celui qui a atteint une rak3at de Şubh avant le lever du soleil a atteint le Şubh
 - Prier au début du temps est :
 	- Comme le prophète ﷺ l'a fait ainsi que les califs bien guidés
