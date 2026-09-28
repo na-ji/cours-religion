@@ -20,3 +20,6 @@ Le temps d'accomplissement se divise :
 
 \* première prière légiféré 
 
+
+![[Pasted image 20260928191830.png]]
+
