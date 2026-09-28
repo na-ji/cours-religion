@@ -30,4 +30,7 @@ Règles :
 	- La manière la plus sûre d'accomplir l'obligation
 - Celui qui a oublié la prière et que le temps ďarûrî est passé, alors il n'a pas commis de péché
 - Si une personne meurt au cours du temps de la prière sans avoir accompli la prière, alors il n'a pas raté la prière sauf s'il savait qu'il allait mourir
-- 
+- On ne doit pas faire de prière surérogatoire :
+	- De Şubh jusqu'à l'apparition du soleil : déconseillé
+	- De l'apparition du soleil jusqu'à que le soleil soit levé : haram
+	- Du soleil levé jusqu'au shur
