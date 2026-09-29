@@ -20,7 +20,7 @@ Le temps d'accomplissement se divise :
 \* première prière légiféré 
 
 
-![[Temps des Prières - La journée en une seule Frise_V3.pdf]]
+![[Temps des Prières - La journée en une seule Frise_V4.pdf]]
 
 Règles :
 - Lorsqu'il reste que le temps de 4 rak3at, le temps appartient à la dernière prière. Exemple : 5 minutes avant Maghrib, on fait 'Asr en priorité, puis Maghrib et enfin, on rattrape Dhur. 
