@@ -13,4 +13,4 @@ Le prophète ﷺ va participer lui-même à la construction, en chantonnant des 
 > Celui qui fait les ablutions parfaitement puis se rend au vendredi, écoute et se tait, il lui est pardonné les péchés commis entre ce moment et le vendredi suivant, ainsi que trois jours supplémentaires. Et celui qui touche les **cailloux** a certes agi de manière futile. [Sahih Mouslim - Hadith n°0857]
 
 La mosquée va rester modeste pendant toute la vie du prophète ﷺ et durant le règne de Abou Bakr. 
-La société musulmane peut être construite de manière solide avec la croyance (3aqida) mais aussi les adorations. Les
+La société musulmane peut être construite de manière solide avec la croyance (3aqida) mais aussi avec les adorations (la prière en premier). C'est pour cela que les musulmans se réunissent dans la maison d'Allah. 
