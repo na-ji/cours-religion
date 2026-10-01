@@ -68,3 +68,7 @@ Pourquoi Omar Ibn Khattab a immigré ouvertement, mais pas le prophète ﷺ ?
 Les muhâjirîne ont tout perdu lorsqu'ils sont arrivés à Médine. Les ansârs vont se disputer l'honneur d'accueillir les muhâjirîne, au point où il a fallu faire un tirage au sort pour les départager. 
 
 > Il [appartient également] à ceux qui, avant eux, se sont installés dans le pays et dans la foi, qui aiment ceux qui émigrent vers eux, et ne ressentent dans leurs cœurs aucune envie pour ce que [ces immigrés] ont reçu, et qui [les] préfèrent à eux-mêmes, même s’il y a pénurie chez eux. Quiconque se prémunit contre sa propre avarice, ceux-là sont ceux qui réussissent. [Sourate 59 Al-Hashr verset 9](https://quran.com/al-hashr/9)
+
+## L'émigration des membres de la famille du prophète ﷺ p142
+
+Cette étape montre clairement que l'émigration de la Mecque vers Médine s'est faite progressivement. La hijra implique des risques et une organisation.
