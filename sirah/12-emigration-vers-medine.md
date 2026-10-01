@@ -77,4 +77,9 @@ Cette étape montre clairement que l'émigration de la Mecque vers Médine s'est
 Les Muhâjirîne ont eu du mal à s'acclimater au climat de Médine et une épidémie de fièvre s'est propagée parmis eux. Le prophète ﷺ va faire cette invocation :
 > Mon Dieu, fais-nous aimer Médine plus encore que Tu nous as fait aimer la Mecque ; bénis-nous ses mesures de grains et fait transporter son épidémie à El-Juhfa
 
+(El-Juhfa: un miqat pour les gens qui viennent de l'ouest)
 
+## L'empêchement de certains musulmans faibles d'émigrer p143
+
+Certains musulmans faibles ont été empêchés et n'ont pas pu immigrer.
+Le prophète ﷺ a fait des dou3as en leur faveur lors de prière. On les appelle les dou3as Al qunût, les invocations dans les moments d'adversité.
