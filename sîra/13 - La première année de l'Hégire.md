@@ -24,3 +24,4 @@ Waqf:
 - **Caractéristique :** Le bien devient inaliénable ; on ne peut ni le vendre, ni le donner, ni le partager.
 
 Ensuite est venu la fraternisation des Muhâjirînes et des Ansars. Celle-ci était tellement forte qu'ils héritaient entre eux.
+Aucune société ne peut se construire durablement sans fraternité.
