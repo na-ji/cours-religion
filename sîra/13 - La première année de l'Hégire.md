@@ -19,7 +19,8 @@ La société musulmane peut être construite de manière solide avec la croyance
 
 La décoration d'une mosquée est déconseillée (makrouh). Et il est interdit de financer la décoration avec les revenus du waqf. La décoration ne doit pas détourner l'attention des fidèles.
 
-
 Waqf: 
 - **Définition juridique :** C'est un legs pieux ou une donation perpétuelle d'un bien (immobilier ou autre) dont les revenus servent à des œuvres caritatives ou religieuses.
 - **Caractéristique :** Le bien devient inaliénable ; on ne peut ni le vendre, ni le donner, ni le partager.
+
+Ensuite est venu la fraternisation des Muhâjirînes et des Ansars. Celle-ci était tellement forte qu'ils héritaient entre eux.
