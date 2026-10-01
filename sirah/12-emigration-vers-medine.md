@@ -72,3 +72,9 @@ Les muhâjirîne ont tout perdu lorsqu'ils sont arrivés à Médine. Les ansârs
 ## L'émigration des membres de la famille du prophète ﷺ p142
 
 Cette étape montre clairement que l'émigration de la Mecque vers Médine s'est faite progressivement. La hijra implique des risques et une organisation.
+
+## La fièvre de Médine p143
+Les Muhâjirîne ont eu du mal à s'acclimater au climat de Médine et une épidémie de fièvre s'est propagée parmis eux. Le prophète ﷺ va faire cette invocation :
+> Mon Dieu, fais-nous aimer Médine plus encore que Tu nous as fait aimer la Mecque ; bénis-nous ses mesures de grains et fait transporter son épidémie à El-Juhfa
+
+
