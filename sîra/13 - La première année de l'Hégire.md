@@ -14,3 +14,7 @@ Le prophète ﷺ va participer lui-même à la construction, en chantonnant des 
 
 La mosquée va rester modeste pendant toute la vie du prophète ﷺ et durant le règne d'Abou Bakr. 
 La société musulmane peut être construite de manière solide avec la croyance (3aqida) mais aussi avec les adorations (la prière en premier). C'est pour cela que les musulmans se réunissent dans la maison d'Allah. 
+
+> Ne peuplent les mosquées d’Allah que ceux qui croient en Allah et au Jour Dernier, accomplissent la prière (As-Salât) \[...\] [Sourate 9 At-Tawbah verset 18](https://quran.com/at-tawbah/18)
+
+La décoration d'une mosquée est déconseillée (makrouh). Et il est interdit de financer la décoration avec les revenus du waqf 
