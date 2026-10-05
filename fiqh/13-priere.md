@@ -42,3 +42,6 @@ Pas de prières quand :
 - Après la prière de Şubh jusqu'à que les bords du soleil apparaissent : makrouh (réprouvé)
 - Ensuite, jusqu'à que le disque soit complètement apparu : haram (interdit)
 - Jusqu'à que le soleil soit levé : makrouh (réprouvé)
+Deux exceptions de ces règles, tant qu'on n'a pas atteint la clarté matinale (al isfar) :
+- Salât al jânaza : si on craint la détérioration du corps
+- Soujoud at-tilawa
