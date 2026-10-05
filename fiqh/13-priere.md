@@ -39,7 +39,6 @@ Règles :
 ## Prières surérogatoires
 
 Pas de prières quand :
-- Après la prière de Şubh jusqu'à que le soleil se lève entièrement : makrouh (réprouvé)
-- 
-
-Hey! Daily update: 
+- Après la prière de Şubh jusqu'à que les bords du soleil apparaissent : makrouh (réprouvé)
+- Ensuite, jusqu'à que le disque soit complètement apparu : haram (interdit)
+- Jusqu'à que le soleil soit levé : makrouh (réprouvé)
