@@ -30,11 +30,6 @@ Règles :
 	- La manière la plus sûre d'accomplir l'obligation
 - Celui qui a oublié la prière et que le temps ďarûrî est passé, alors il n'a pas commis de péché
 - Si une personne meurt au cours du temps de la prière sans avoir accompli la prière, alors il n'a pas raté la prière sauf s'il savait qu'il allait mourir
-- On ne doit pas faire de prière surérogatoire :
-	- De Şubh jusqu'à l'apparition du soleil : déconseillé
-	- De l'apparition du soleil jusqu'à que le soleil soit levé : haram
-	- Du soleil levé jusqu'au shuruk : déconseillé 
-	- Après autorisé
 
 ## Prières surérogatoires
 
@@ -47,6 +42,6 @@ Deux exceptions de ces règles, tant qu'on n'a pas atteint la clarté matinale (
 - Soujoud at-tilawa
 
 Pas de prières quand :
-- Entre le moment où l'imam s'assoit sur le minbar jusqu'à qu'il finisse son prêche
-- Juste après la prière du vendredi 
+- Entre le moment où l'imam s'assoit sur le minbar jusqu'à qu'il finisse son prêche (makrouh)
+- Juste après la prière du vendredi (makrouh)
 > Puis quand la prière (As-Salât) est achevée, dispersez-vous sur la terre [Sourate 62 Al Jumu'ah verset 10](https://quran.com/al-jumuah/10)
