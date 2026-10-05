@@ -20,7 +20,7 @@ Le temps d'accomplissement se divise :
 \* première prière légiféré 
 
 
-![[Temps des Prières - La journée en une seule Frise_V4.pdf]]
+![[13-Temps des Prières - La journée en une seule Frise_V4.pdf]]
 
 Règles :
 - Lorsqu'il reste que le temps de 4 rak3at, le temps appartient à la dernière prière. Exemple : 5 minutes avant Maghrib, on fait 'Asr en priorité, puis Maghrib et enfin, on rattrape Dhur. 
@@ -35,3 +35,11 @@ Règles :
 	- De l'apparition du soleil jusqu'à que le soleil soit levé : haram
 	- Du soleil levé jusqu'au shuruk : déconseillé 
 	- Après autorisé
+
+## Prières surérogatoires
+
+Pas de prières quand :
+- Après la prière de Şubh jusqu'à que le soleil se lève entièrement : makrouh (réprouvé)
+- 
+
+Hey! Daily update: 
