@@ -48,3 +48,5 @@ Deux exceptions de ces règles, tant qu'on n'a pas atteint la clarté matinale (
 
 Pas de prières quand :
 - Entre le moment où l'imam s'assoit sur le minbar jusqu'à qu'il finisse son prêche
+- Juste après la prière du vendredi 
+> Puis quand la prière (As-Salât) est achevée, dispersez-vous sur la terre [Sourate 62 Al Jumu'ah verset 10](https://quran.com/al-jumuah/10)
