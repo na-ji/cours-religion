@@ -45,3 +45,6 @@ Pas de prières quand :
 Deux exceptions de ces règles, tant qu'on n'a pas atteint la clarté matinale (al isfar) :
 - Salât al jânaza : si on craint la détérioration du corps
 - Soujoud at-tilawa
+
+Pas de prières quand :
+- Entre le moment où l'imam s'assoit sur le minbar jusqu'à qu'il finisse son prêche
