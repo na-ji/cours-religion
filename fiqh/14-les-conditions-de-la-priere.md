@@ -11,7 +11,7 @@ Conditions d'obligation
 
 - Être en état de pureté mineur et majeur
 - Que le corps, le vêtement et le lieu de prière du fidèle soient exempts de toute impureté matérielle
-- Se couvrir la nudité
+- Se couvrir la nudité (un vêtement opaque qui couvre suffisamment, non transparent)
 - S'orienter vers la Qibla
 - Observer le silence
 - S'abstenir de faire des mouvements en grande quantité
