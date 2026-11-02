@@ -1,3 +1,8 @@
+- La prière est le second pilier le plus important après les attestations de foi
+- Le caractère obligatoire est confirmé par le Coran, la sunna et le consensus (ijma3)
+	- Si quelqu'un réfute ce qui est nécessairement connu de la religion, il tombe dans la mécréance → nier le caractère obligatoire de la prière fait tomber dans la mécréance (nier ≠ délaisser → désobéissant)
+
+La prière dans la langue arabe signifie principalement l'invocation. Dans la terminologie juridique, la prière est un ensemble de paroles et d'actes qui commencent par le takbir qui se termine par le taslim, accompagné de l'intention, et soumis à des conditions particulières.
 ## Les temps des prières canoniques
 Le temps où commence une prière et quand se termine celle-ci constitue une cause (sabab) de l'obligation.
 
