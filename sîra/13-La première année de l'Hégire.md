@@ -25,3 +25,5 @@ Waqf:
 
 Ensuite est venu la fraternisation des Muhâjirînes et des Ansars. Celle-ci était tellement forte qu'ils héritaient entre eux.
 Aucune société ne peut se construire durablement sans fraternité.
+
+Le pacte de médine a été établi par le prophète ﷺ sur la base de la révélation de son Seigneur.
