@@ -12,3 +12,5 @@ Le dajjal est un imposteur qui va apparaître à la fin des temps et qui va éga
 
 Lire sourate Al Kahf doit faire réfléchir sur les dangers des dajjal en tout temps. Cela permet de reconnaître les épreuves à temps.
 La lecture attire les anges et apporte la sérénité.
+
+> D’après Abou Said Al Khoudri (qu’Allah l’agrée), Un homme récitait la sourate Al-Kahf alors qu’il avait attaché son cheval par deux licols. Un nuage l’enveloppa et se mit à tourner et à se rapprocher de lui. Son cheval ne cessa de s’en écarter. Le lendemain matin, l’homme vint trouver le Prophète (ﷺ) et lui raconta ce qui s’était passé. Celui-ci lui répondit: « C’est la sakîna (sérénité envoyée par Allah sous forme de nuage)  qui est descendue grâce à la récitation du Coran ». [Rapporté par Mouslim dans son Sahih n°795]
