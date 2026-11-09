@@ -17,7 +17,7 @@ Conditions d'obligation
 		- Chez l'homme, du nombre aux genoux
 		- Chez la femme, tout le corps sauf visage et main
 - S'orienter vers la Qibla
-	- Il est recommandé de recommencer la prière dans son canonique pour celui qui se trompe de direction
+	- Il est recommandé de recommencer la prière dans son temps canonique pour celui qui se trompe de direction
 - Observer le silence
 	- Ne pas parler en disant autre chose que la prière
 	- Sauf si c'est pour corriger la prière
