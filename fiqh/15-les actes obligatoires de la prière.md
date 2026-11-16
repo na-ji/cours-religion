@@ -10,6 +10,8 @@ Chez les hanafites, le fard s'établit sur une preuve catégorique, tandis que l
 > Quant aux paroles prononcées dans la prière, elles relèvent de la sounna à l'exception du takbir initial, de la récitation de la fatihah et du salam final.
 
 - Formuler l'intention de prier en spécifiant la prière que l'on s'apprête à accomplir
+	- l'intention a deux di
 - Prononcer la takbîr dit de sacralisation (takbîrat al-iħrâm) en position debout
 - Réciter la Fâtiħa en position debout
-- Effectuer l'inclinaison puis se remettre en position
+- Effectuer l'inclinaison puis se remettre en position debout
+- Se prosterner, en posant le front sur le sol, puis se relever
