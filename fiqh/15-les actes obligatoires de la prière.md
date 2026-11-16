@@ -18,6 +18,7 @@ Chez les hanafites, le fard s'établit sur une preuve catégorique, tandis que l
 - Prononcer la takbîr dit de sacralisation (takbîrat al-iħrâm) en position debout
 	- Prononcer correctement est important, même si certaines erreurs de prononciation n'invalident pas la prière selon le rite malikite
 - Réciter la Fâtiħa en position debout
+	- Le fidèle doit réciter avec la langue
 - Effectuer l'inclinaison puis se remettre en position debout
 - Se prosterner, en posant le front sur le sol, puis se relever
 - Observer un temps d'immobilité lorsqu'on se relève de l'inclinaison et de la prosternation
