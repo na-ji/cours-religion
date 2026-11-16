@@ -14,6 +14,7 @@ Chez les hanafites, le fard s'établit sur une preuve catégorique, tandis que l
 		1. Déterminer l'acte que nous allons accomplir
 		2. Rechercher à travers cet acte l'agrément d'Allah
 	- On ne prononce pas verbalement l'intention (sauf pour celui qui souffre de TOC, pour occuper sa pensée)
+	- L'intention doit être accompagnée du takbîr de sacralisation
 - Prononcer la takbîr dit de sacralisation (takbîrat al-iħrâm) en position debout
 - Réciter la Fâtiħa en position debout
 - Effectuer l'inclinaison puis se remettre en position debout
