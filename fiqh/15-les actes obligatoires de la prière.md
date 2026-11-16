@@ -1,0 +1,15 @@
+## Les actes obligatoires de la prière p66
+
+Farâ'id (pluriel de fard) = ce dont le législateur exige l'accomplissement de manière catégorique
+
+Chez la majorité des 3ulamas, fard = wajib, synonyme, sauf chez les hanafites.
+
+Chez les hanafites, le fard s'établit sur une preuve catégorique, tandis que le wajib s'appuie sur une preuve qui s'appuie sur un ijtihad. 
+
+> Les actes de la prière sont obligatoires à l'exception du fait de lever les deux mains ainsi que de l'orientation vers la droite et de la première des deux positions assises.
+> Quant aux paroles prononcées dans la prière, elles relèvent de la sounna à l'exception du takbir initial, de la récitation de la fatihah et du salam final.
+
+- Formuler l'intention de prier en spécifiant la prière que l'on s'apprête à accomplir
+- Prononcer la takbîr dit de sacralisation (takbîrat al-iħrâm) en position debout
+- Réciter la Fâtiħa en position debout
+- Effectuer l'inclinaison puis se remettre en position

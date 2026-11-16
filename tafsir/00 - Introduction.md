@@ -55,3 +55,14 @@ Ibn Abass dit : le Tafsir est classé selon quatre types
 
 ### Le prophète et le Tafsir
 
+
+### Pourquoi sourate Al-Baqarah s'appelle Al-Baqarah
+
+La sourate est une sourate médinoise qui décrète plein de sujets : la dette, le jeune, le pèlerinage, le divorce, etc.
+
+Lorsque Allah a ordonné aux enfants d'Israël d'égorger une vache, ceux-ci ont polémiqué et posé plein de questions afin d'éviter de le faire.
+
+Le nom Al-Baqarah symbolise l'obstination d'un peuple face aux ordres d'Allah.
+
+
+Il y a des sourates intitulées par révélation. D'autres par le prophète ﷺ. 
