@@ -19,3 +19,7 @@ Chez les hanafites, le fard s'établit sur une preuve catégorique, tandis que l
 - Réciter la Fâtiħa en position debout
 - Effectuer l'inclinaison puis se remettre en position debout
 - Se prosterner, en posant le front sur le sol, puis se relever
+- Observer un temps d'immobilité lorsqu'on se relève de l'inclinaison et de la prosternation
+- Se tenir droit dans la prière (tant en position debout qu'en position assise)
+- Faire les actes obligatoires en suivant l'ordre prescrit
+- Prononcer le salut final en position assise
