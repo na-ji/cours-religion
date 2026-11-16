@@ -16,6 +16,7 @@ Chez les hanafites, le fard s'établit sur une preuve catégorique, tandis que l
 	- On ne prononce pas verbalement l'intention (sauf pour celui qui souffre de TOC, pour occuper sa pensée)
 	- L'intention doit être accompagnée du takbîr de sacralisation
 - Prononcer la takbîr dit de sacralisation (takbîrat al-iħrâm) en position debout
+	- Prononcer correctement est important, même si certaines erreurs de prononciation n'invalident pas la prière selon le rite malikite
 - Réciter la Fâtiħa en position debout
 - Effectuer l'inclinaison puis se remettre en position debout
 - Se prosterner, en posant le front sur le sol, puis se relever
